@@ -1,2 +1,3 @@
-# asynchronousBallMovement
-Boiler plate for ball moving aysnchronously
+PAINT AS MUCH AS YOU WANT !!!
+ But with CARE !! 
+  REGARDS Radhashree... 
